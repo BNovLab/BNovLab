@@ -1,1 +1,1 @@
-Dr Novakovic PhD is a Team Leader in the Molecular Immunity Group at the Murdoch Children’s Research Institute. He leads the Trained Immunity Epigenetics Team within this group and is a University of Melbourne Honorary Senior Fellow. He has over 15 years' experience in Molecular Biology and Epigenetics. 
+Molecular immunology lab at the Murdoch Children's Research Institute
